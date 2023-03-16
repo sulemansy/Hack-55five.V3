@@ -1,3 +1,3 @@
 # Wingo auto select
 
-Register : https://55fivec.com/#/register?r_code=yWhqz974105
+Register : https://55fivee.com/#/register?r_code=sbJnv4801
